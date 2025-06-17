@@ -19,7 +19,7 @@
 
 ## 🔗 Connect With Me
 - Gmail: [dharmeshhq3@gmail.com](mailto:dharmeshhq3@gmail.com)
-- LinkedIn: *(tu bana le — I'll help)*
+- LinkedIn: 
 
 
 🧠 _“Consistency > Motivation.”_  
